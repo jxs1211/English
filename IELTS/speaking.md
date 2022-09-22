@@ -33,3 +33,8 @@ Um..., and, Well, I mean, you know, like...
 - 雅思口语考试标准没有要求百分百扣题，不知道答案的问题，你应该就这个问题与考官进行 `communication`
 
 ### Dying career you want to steer clear of
+- You can put together your whole vacation
+- bummed vs. inspired
+- at the forefront of the world with brand new job opportunities
+
+The best way for learning knowledge efficently is using it 使用，使用，使用
