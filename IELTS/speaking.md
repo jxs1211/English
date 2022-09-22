@@ -25,11 +25,11 @@ Um..., and, Well, I mean, you know, like...
 - Sorry, I forget the word I wanted to say ... Um, Well...
 - God, I can't remember ...
 - That was a slip of the tongue
-- 
-
 
 
 **第一反应**
 
 - 遇到一个词不会说的时候，要沟通你不会的词，最后举一个例子，That's a ..., I'm looking forward a word to describe your question...
 - 雅思口语考试标准没有要求百分百扣题，不知道答案的问题，你应该就这个问题与考官进行 `communication`
+
+### Dying career you want to steer clear of
