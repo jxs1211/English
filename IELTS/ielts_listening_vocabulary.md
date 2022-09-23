@@ -16,3 +16,20 @@
 - surround
 - technican technician
 
+- transfer
+- in terms of
+- socialo socialogy
+- secondary
+- primary
+- relating to
+- familiar with   familiarise
+- per   periodical
+- current issue   
+- quite few   quite a few
+- over    overdue
+- f   theorectically
+- provided
+- s   recall
+- in which case
+- workshop
+- convention
