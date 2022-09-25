@@ -1,6 +1,47 @@
-### 2022-9-24
+### 2022-9-25
 #### previous:
 #### today:
+
+### 2022-9-25
+#### previous:
+- disasters    diastrous
+- ramp
+- overdue
+- periodical
+- recall
+- sociology
+- equal    equally
+- intercenter    incentive
+-       morale
+- neglect   
+-       retention
+- shift
+- staff
+-       turnover
+- wall   warn
+- approach
+- exterior
+- preditor    predator
+-     sack
+-     shipwreck
+- sport     spot
+#### today:
+- switch
+- light up
+- square
+- rediator
+- maximum
+- plastic
+- indicator
+- complicated
+- instruction
+- cupboard
+- cook    hook
+- lung    lamp
+- bob     bulb
+- carboard    cardboard
+- takeaway     
+- pasta
 
 ### 2022-9-24
 #### previous:
