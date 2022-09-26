@@ -1,6 +1,52 @@
-### 2022-9-25
+### 2022-9-26
 #### previous:
 #### today:
+
+
+### 2022-9-26
+#### previous:
+- calories
+- knife
+- vegeterian   vegetarian
+- fiction
+- blood sugar
+- c levels     cholesterol levels
+- community room
+- reference book
+- stand     stamp
+- moon child     wall-charts
+-            clerical
+- temporary
+- recuit
+- registration
+- suit
+- personality
+- candidates
+- appropriate
+-      beginner
+- conservation
+- habitant  habitat
+- instorm    install
+- letter     litter
+- reserve
+- 
+#### today:
+- palace
+- residence
+- commerical    commercial
+- inve    invade
+- solider    soldier
+- shallow    
+- interactive
+- intertaler   entertainment
+- com     complex
+- bollon  bowling
+- alley    
+- archive     arcade
+- commentary  
+- hot     hop-on-hop-off
+- b       valid
+- s       sightseeing
 
 ### 2022-9-25
 #### previous:
