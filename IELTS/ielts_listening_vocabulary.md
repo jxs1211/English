@@ -2,6 +2,74 @@
 #### previous:
 #### today:
 
+### 2022-9-26
+#### previous:
+- knife
+- vegetarian
+- emergency exits
+- finanical implications    financial implications
+- floor     floor coverings
+- index     In-depth
+- abslite   Obsolete
+- archive 
+- orion
+- appearance
+- emotion
+-     spectator
+- stadium
+-     tutorial
+- predator
+-     sack
+-     shipwreck
+- spot
+- boundary
+- dancely     densely
+- inlarge     enlarge
+- gardener    
+- hedge   
+- mains     maze
+- partition   petition
+- pers     possession
+- residential    
+- revise
+- red angel     right-angel bend
+-      river bank
+- sculpture
+- visiable
+#### today:
+- sonser   sponsor
+- interel   entail
+- promise 
+- donate
+- track    trek
+- raise money
+- puple  pupil
+- se    certificate
+- don   daunt
+- fet    foothill
+-    fit
+- get into shame   get into shape
+- rock sack    rucksack
+- mav     marvelous
+- apart from
+- peak 
+- baley    valley
+- carpert    carpet
+-     weave
+- rood caving    wood carving
+- welcoming 
+- deliberl    deliberately
+- discuption    disruption
+- landscape     
+- x      outline
+- x      itinerary
+- set in
+- commenate    culminate
+- watter for    waterfall
+- gorgous    gorgeous
+- packed   
+- time-table    timetable
+
 
 ### 2022-9-26
 #### previous:
