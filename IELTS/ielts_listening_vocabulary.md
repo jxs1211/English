@@ -4,6 +4,68 @@
 
 ### 2022-9-26
 #### previous:
+- extra charge
+- fare
+- holding   holding pens 
+- passenager    passenger
+- scenery   
+- track   trek
+- laised with    liaised with
+- revival
+- consultation
+- meet free recipe   meet-free recipe
+- ruf     rafting
+- tuition
+-     ceramic
+- gar eb    gala evening
+- passionate
+- s     receipt
+-       winding road
+- guide dog
+- shop point     sharp points
+- sadul     sandal
+- slip
+-          porcelain
+- accommdation    accommodation
+-        lorge (bungalow)
+- park      theme park
+- industrial revolution
+- ad    adapted
+- copy mind      copper mine
+- expansion      
+- fel       fuel
+- river trac     river transport
+- trust    
+- unemployeed    unemployed
+- wheel      
+#### today:
+- passport photo   passport photos
+- document
+- ID
+- driven license     driving license
+- steal      steel
+- factory   
+- reference book
+- external
+- fiction
+- vine     fine
+- in-place    in place
+- booklet     
+- renew
+- login onto      log on to
+- norma     norminal
+- ev        thereafter
+- advisable  
+- database
+- access
+- selection
+- magzine     magazine
+- blank and white copy   black-and-white copy
+- re author   resdient author
+- creative   
+
+### 2022-9-26
+#### previous:
 - knife
 - vegetarian
 - emergency exits
