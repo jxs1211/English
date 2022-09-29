@@ -14,7 +14,7 @@
 - adpated
 - copper mine
 - fuel
-- transport     river transport
+- transport      river transport
 - unemployed
 - available
 - bal         balcony
