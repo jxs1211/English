@@ -1,6 +1,72 @@
-### 2022-9-26
+### 2022-9-27
 #### previous:
 #### today:
+
+
+### 2022-9-26
+#### previous:
+- sharp points
+- sandal
+- porcelain
+- accommondation
+- lodge
+- theme park
+- adpated
+- copper mine
+- fuel
+- transport     river transport
+- unemployed
+- available
+- bal         balcony
+- barbecue
+- be     brochure
+- budget
+- cancellation
+- departure
+- generous
+- mountainside
+- repe   representative
+- resort     
+- satellite    
+- senciable    sensiable
+-     switchboard
+- terrace
+-       well-equipped
+#### today:
+- sponsor
+- entell    entail
+- promise
+- donate
+- trek
+- raise money
+- pupil
+- certificate
+- down     daunt
+- ftel     foothill
+- fet      fit
+- get into sha     get into shape
+- rock      runcksack
+- marvelous 
+- part   apart from
+- peek     peak
+- balli   valley
+- carpet    
+- rootc     weave
+-       wood carving
+- welcoming       
+- dis     deliberately
+-        disruption
+- landscape   
+- outline
+- iter    itinerary
+- cli      acclimatise
+- set in   
+- cop      culminate
+- waterfull   waterfall
+- gorgenours   gorgeous
+- par     packed
+- timetable    
+
 
 ### 2022-9-26
 #### previous:
