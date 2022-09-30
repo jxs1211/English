@@ -1,6 +1,72 @@
 ### 2022-9-27
 #### previous:
+- engine craft     ancient craft
+- be        bear...in mind
+- commercially
+- dying   dye
+- her     hedge
+- herb    herb
+- letter  litter
+- range   ranger
+- side    slide
+- winll   willow
+- river transport
+- studio flat
+- available
+- visiable    reasonable
+- feature    
+- moutainside
+-     terrace
+-     barbecue
+-     well-equipped  
+- satellite
+- budget
+-     balcony
+- brochure
+- maximum
+- cancellation
+- sensiable
+- resort
+- reprentative     representative
+-     depature
+-     generous
+-     laptop
+- swithboard
+- b     bulb
+- car board   cardboard
+- hook
+- lap    lamp
+- takeaway
 #### today:
+- demo    demolition
+- demolite  derelict
+- storehouse
+- propertide    property developer
+- highrise    high-rise
+- recua      recreation
+- indor      indoor sports complex
+- arena      
+- studio     stadium
+- track c    track and field
+- centrallize      synchronize
+- ss        diving
+- cur     circular
+-    ornamental
+- bo     pond
+- bench    
+- rolling boat   rowing boat
+- she     shed (hedge, bungalow)
+- cafe    
+-      wetland
+-      boardwalk
+- frog
+- refugee    refuge
+- shouter    shelter
+-     esturay
+- spy        
+- boo        binocular
+- swan       
+
 
 
 ### 2022-9-26
