@@ -2,6 +2,111 @@
 #### previous:
 #### today:
 
+### 2022-10-1
+#### previous:
+- black-and-write-copy
+- driving license
+-     fine
+- in place
+- log onto    log on to
+- magazine
+- nor   nominal
+- pa    passport photos
+- re    resident author
+- 
+-      steel
+- thereafter    
+- tutor    tutorial
+- ar      Orion
+- stadium    
+- spectator   spectator
+- appearance   
+- emotion    
+- plaktici      creativity
+-       networking
+- unaware
+- stuff    staff
+- turn off    turnover
+- workload
+- a      morale
+- inablilty     inability
+- equality      equally
+-      shift
+- warm      warn 
+- neglect   
+- retation    retention
+- a      complaint
+- loyalty   
+-       incentive
+-       career
+- perk
+- plerecal     clerical      
+#### today:
+- assisstant   assistant
+- agent       agency
+- responsiblity     responsibility   
+- entry       
+- interpersonal
+- stock       
+- item
+- warehouse
+- a     advert
+- enterf     interfere with
+- fi       phyisics
+- workarp    work permit
+- shuuter    tutor
+- recuit     recruit
+- french     fringe
+- perso      hostel
+- perk     
+- refere   referee
+- senbo     symbolic
+- categ     categorise
+- dynamic
+-    depict    
+- sta     static
+- ppose     pose
+- dominate    
+- refer     reflect
+- \x    stick-like
+- x     figures
+- x     natrualistic
+- x-ray
+- schem    skeleton
+- orgen    organ
+- res      curvy
+-       resemble
+
+- satellite   settler
+- minitu    miniature
+- shell    
+- marien    marine
+- daiter    diet
+- merni     prominently
+- entry     intrigue
+- rainbow   
+- serten     serpent
+- curious    
+- can      kangaroo
+- co       crocodile
+- collin   coincide
+- create    tremendous
+-      creep
+- discruption   
+- ss      shore
+- wash uop     wash up onto
+- reben      ribbon
+- pai      pipefish
+- seahorse     sea horse
+- unfamiliar   
+- region
+- ens     inspiration
+- an      enormous
+- abordns       abundance
+- waitness
+- understandable
+-     creation
+
 ### 2022-9-27
 #### previous:
 - engine craft     ancient craft
