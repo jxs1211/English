@@ -1,6 +1,63 @@
-### 2022-9-27
+### 2022-10-2
 #### previous:
 #### today:
+
+### 2022-10-2
+#### previous:
+- ancient craft
+- beer in mind   bear...in mind
+- bu    dye
+- hedge  
+- her    herb
+- litter
+- en     ranger
+-      slide
+-      willow
+- balcony
+- representative
+- re      well-equipped
+- babecue
+- departure
+- generous
+-      terrace
+- laptop
+- ressonable
+- bol    bulb
+- cardboard
+- lamp
+- takeaway
+- alley
+- bo     arcade
+-      bowling
+- commercial
+- complex
+- entertainment
+- ho    hop-on hop-off
+- env   invade
+- silde   sightseeing
+- soldier   
+- valien   valid
+#### today:
+- le    leaflet
+- commut    commuter line
+- regional     
+- weekday
+- buffet
+- refreshment
+- first class
+- discount    discounted
+- f     valid
+- b     go to round
+- facili     fascinating
+- ve      theme
+- original 
+- mai     miner
+- expersion     excursion
+- mainline    
+- ter     fare
+- internationaliy    internationally-acclaimed
+- c      aquarium
+- anticipate
 
 ### 2022-10-1
 #### previous:
