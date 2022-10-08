@@ -2,13 +2,12 @@
 链接：https://pan.baidu.com/s/1OW7FdKSDug1_ivh3lkehXA 
 提取码：6k0z 
 
+### Fluency and coherence 
+### Lexical resource
+### Grammatical range and accuracy 
+### Pronunciation
 
-
-## Fluency and coherence 
-## Lexical resource
-## Grammatical range and accuracy 
-## Pronunciation
-
+#### Better coherence leads better fluency and better volcabulary and better grammar.
 
 连接词：
 Um..., and, Well, I mean, you know, like...
