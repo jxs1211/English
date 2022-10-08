@@ -1,6 +1,66 @@
-### 2022-10-2
-#### previous:
-#### today:
+### 2022-10-8
+#### Reinforcement(Consolidation):
+#### Today:
+
+### 2022-10-8
+#### Reinforcement(Consolidation):
+- bulhwalk   bushwalk
+- col   coachload
+- cruise
+- departure
+- in peak times
+- preo   provisional
+- in big time    reptile
+- si    sighting
+- snake
+- whale
+- acclimatise
+- culumate culminate
+- do   daunt
+- deliberately
+- s    disruption
+- foothill
+- itenerary    itinerary
+- outline
+- act   packed
+- rucksack
+-     valley
+- binocular
+- bodywalk  boardwalk 
+- demolition
+- demoliate     derelict
+- ds   diving
+- estray    estuary
+- ornamental 
+-      pond    
+- refuge
+- densely
+- partition petition
+- per   possession
+#### Today:
+- model   muddle
+- a serise of   
+- permen    permanently
+- print of   print off
+- jer    journal articals
+- ha    shelves
+-         phase out
+- classic     
+- restrict   restricted
+- low en    loan time
+- get stuck   
+- reverlent  relevant
+- oversea    oversee
+- indo       induction
+- initial    
+- de      dissertation
+- file    
+- at the old set     at the outset
+- charpter     chapter
+- builo     bibliography
+- draft     
+- register    
+- from broad    from abroad
 
 ### 2022-10-2
 #### previous:
