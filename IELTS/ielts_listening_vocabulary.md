@@ -1,6 +1,67 @@
 ### 2022-10-8
 #### Reinforcement(Consolidation):
+- cholestrol level     cholesterol levels
+- wall-charts
+- bushwalk
+- coashload     coachload
+- provisional
+- reptile
+- sighting
+- Rolls-Royce
+- bathroom
+- rek    brick
+- chill   chimney
+- clei    clay
+- daughter
+- de      devastate
+- elder  
+- exz    exotic
+- footbridge  
+-     fruit
+- gre    greenhouse
+- 
+- hevan  haven
+-     marry
+-     mullioned
+- orc   oak
+- ocherl   orchard
+- purchase
+- shas    sandstone
+- shed    shade
+- side entrance
+- side   signpost
+- suvir    suvenir
+- spread   
+- stark   stack
+- tile   underneath
+- upderi   viewpoint
+- wander   
 #### Today:
+- competition
+- advance   advanced
+- truck
+- coding
+- disk
+- atick    attic
+- format
+- frame
+- album
+- charge
+- payment
+- castle   parcel
+- folder
+- background
+- contrast
+- fragile
+- focus
+- plastic
+- responsible
+- submit
+- reference
+- well-being
+- waterproof
+- medicine   medication
+- helment    helmet
 
 ### 2022-10-8
 #### Reinforcement(Consolidation):
