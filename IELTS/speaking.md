@@ -100,3 +100,7 @@ SEE MORE 5 Unwritten Rules to Know to Succeed at Your First Job
 - at the forefront of the world with brand new job opportunities
 
 The best way for learning knowledge efficently is using it 使用，使用，使用
+
+part1、part2、part3理论部分
+
+
