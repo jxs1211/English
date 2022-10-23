@@ -41,10 +41,23 @@ We usually don't use atmosphere for people, for example, you are giving me a ver
 - cottage
 It's a very small house, is often mode of stones, and it's often by a lake or water, usually.
 - chimney
-It's something that goes on top of the house, on the roof of the house, there is usually a fireplace under the chimney and smokes go through it, it is mode of ston e.
+It's something that goes on top of the house, on the roof of the house, there is usually a fireplace under the chimney and smokes go through it, it is mode of stone.
 
 #### 003 Basics of Description
+I would like to describe something very clearly, and try to put it clearly in somebody's mind.
+There is one thing you should keep mind, if we use one or two sentences to set all the basic details that we need at the begin of the description, I would recommend you use one sentence:
+- 1 use one very clear sentence
+- 2 more than one adj (and also can put three or four adjs in front of the n.)
+We can put three or four adjs in front of the n. to make it really really clear for what we talk about and give the other person a very clear picture.
+- 3 have a main noun
+1998 can be used as an adj.
 
+if you say a 32 pages book, all you doing there is hyphen, and you're making it into adj
+adj can't be purals
+so we're gonna use 3 adj here ,
+
+For example, I have a yellow 4-door 1998 Ford with a good stereo. Now you will get a very clear picture about the car that I describe in your mind.
+Then I can tell a story coz' you have a very clear picture in you mind, so the story will make sense.
 
 P4
 004 Description Practice
